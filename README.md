@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @akiroidk
+- 👀 I’m interested in cinema, tea, music
+- 🌱 I’m currently learning at NTUKPI
+- 💞️ I’m looking to collaborate with my mind 
+- 📫 How to reach me: inst @too_yoooung
